@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @miniminer-413
+- 👀 I’m interested in not being dead
+- 🌱 I’m currently learning soldering
